@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Brunoalvarezz
+- 👀 I’m interested in Big Data
+- 🌱 I’m currently learning BI
+- 💞️ I’m looking to collaborate on everything I find attractive
+- 📫 How to reach me - @bbrunoalvarez (Ins)
